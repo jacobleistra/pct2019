@@ -4,6 +4,7 @@ title: "Trail Facts and FAQs"
 date: 2019-05-06
 description: "Answers to questions I get about my hike."
 image: /assets/images/trail-facts-faqs-1.jpg
+author: Jacob Leistra
 tags:
   - PCT
   - Hiking
