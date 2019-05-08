@@ -36,8 +36,6 @@ When I'm not listening to albums, I really enjoy Boiler Room DJ sets. Here are t
 * [Nightmares On Wax Boiler Room London DJ Set](https://www.youtube.com/watch?v=Q692lHFaLVM)
 * [Yaeji Boiler Room New York DJ Set](https://www.youtube.com/watch?v=4t649hEMbIA)
 
-And lastly, I do enjoy a good YouTube
-
 ##### Podcasts
 I've been saving up a month's worth of episodes from my favorite podcasts:
 
