@@ -44,7 +44,6 @@ I've been saving up a month's worth of episodes from my favorite podcasts:
 * [*Nancy*](https://www.wnycstudios.org/shows/nancy) by WNYC Studios
 * [*Radiolab*](https://www.wnycstudios.org/shows/radiolab) by WYNC Studios
 
-
 ##### Books
 I'm bringing only one ebook/audiobook, gifted to me recently by a good friend:
 
