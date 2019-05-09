@@ -30,7 +30,7 @@ And here are some new (to me) albums I'm also bringing along:
 * [*Buoys*](https://www.youtube.com/watch?v=Eo6Sf80Uco8&list=PLZqsyBiYZFQ22wNDq29U5G-ClMRHguPsN) - Panda Bear
 * [*Pacific*](https://www.youtube.com/watch?v=dSCwoYcp0IY) - Haruomi Hosono
 
-When I'm not listening to albums, I really enjoy Boiler Room DJ sets. Here are two of the best:
+When I'm not listening to albums, I really enjoy Boiler Room DJ sets. Here are a few of the best:
 
 * [Bonobo Boiler Room New York DJ Set](https://www.youtube.com/watch?v=uynCeLheCPc)
 * [Nightmares On Wax Boiler Room London DJ Set](https://www.youtube.com/watch?v=Q692lHFaLVM)
