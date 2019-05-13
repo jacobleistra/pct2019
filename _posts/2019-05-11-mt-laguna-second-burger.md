@@ -13,7 +13,7 @@ Mile 20.2 -> Mile 45.3
 
 The rain drop alarm clock rang at 5:40 AM, so we quickly packed up and got moving. We passed a few other groups from the day before, but we all leap-frogged each other throughout the day. 
 
-![](/assets/images/IMG_20190511_175533.jpg)
+![](/assets/images/IMG_20190511_174928.jpg)
 
 The rain followed us through the better part of the day until we got to Mount Laguna. It then cleared up as we headed into a the Pine Lodge Cafe for our second burger in two days.
 
