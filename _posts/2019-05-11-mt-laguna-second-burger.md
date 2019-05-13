@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title: "Day 2: Mount Laguna and the Second Burger"
