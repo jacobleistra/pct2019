@@ -12,9 +12,9 @@ Mile 71.2 -> Mile 77 to hitch hike in and out of Julian -> Mile 83.1
 
 I woke up with some foot pain, likely due to jamming downhill in a long section with jutting rocks the day before. I hobbled my way in the early morning heat and got to Scissors Crossing. We were able to find a ride into Julian with the second vehicle that passed by. A nice guy in a truck told us to hop in the back and he blasted up the windy roads into this San Diego gold rush town.
 
-![](/assets/images/IMG_20190513_085206.jpg]
+![](/assets/images/IMG_20190513_085206.jpg)
 
-![](/assets/images/IMG_20190513_085455.jpg]
+![](/assets/images/IMG_20190513_085455.jpg)
 
 Excited for some rest and relaxation, we started with complimentary pie for PCT hikers from Mom's Pies, a Julian institution. We then ran errands to resupply and tend our injuries. Papaya was having some tendonitis, so he cleverly made use of a frozen orange juice concentrate. He and Trashalope then discussed the number of burgers they'd expect to eat over the trail. Trashalope, living up to his name, was certain he would eat 100+. A bet was made. 
 
