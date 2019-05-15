@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 3:The Desert That Was Promised"
+title: "Day 3: The Desert That Was Promised"
 date: "2019-05-12"
 description: "Description"
 image: /assets/images/IMG_20190512_184410.jpg
