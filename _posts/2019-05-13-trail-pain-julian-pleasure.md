@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Trail Pain, Julian Pleasure"
+title: "Day 4: Trail Pain, Julian Pleasure"
 date: "2019-05-13"
 description: "Description"
 image: /assets/images/IMG_20190513_160802.jpg
