@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Pushing to Warner Springs"
+title: "Day 5: Pushing to Warner Springs"
 date: "2019-05-14"
 description: "Description"
 image: /assets/images/IMG_20190514_153610.jpg
