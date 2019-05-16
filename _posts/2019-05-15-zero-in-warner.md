@@ -3,7 +3,7 @@ layout: post
 title: "Day 6: Zero In Warner Springs"
 date: "2019-05-15"
 description: "Description"
-image: /assets/images/IMG_20190515_120811.jpg
+image: /assets/images/IMG_20190515_120809.jpg
 tags:
     - PCT
     - Life
