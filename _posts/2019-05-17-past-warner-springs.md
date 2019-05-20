@@ -9,6 +9,7 @@ tags:
     - Life
 ---
 Day 7: Mile 109.5 -> Mile 124.9
+
 Day 8: Mile 124.9 -> Mile 145.4
 
 We spent the next two days approaching Paradise Valley and Idyllwild. We left Warner Springs in wet, rainy conditions that followed us all the way into Idyllwild. So, we're back to the bizarre desert conditions that puzzle me and my gear decisions. I'm definitely ready for the sweltering days. 
