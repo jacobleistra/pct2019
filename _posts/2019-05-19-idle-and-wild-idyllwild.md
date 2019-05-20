@@ -12,7 +12,7 @@ Day 9: Mile 145.5 -> Mile 151.8, Hitchhike into Idyllwild
 
 Day 10: Mile 151.8 - Zero miles on trail
 
-We pushed 6.5 mil to Paradise Valley Cafe to reward ourselves with breakfast. We all ordered a huge plate of chicken fried steak and eggs, and drained a few cups of coffee. Our plane was to hitchhike into Idyllwild, spent the day figuring out stuff, and camping. The following day was our first real, planned zero: we hoped to cook a "family" dinner, watch the Game of Thrones finale, and rest our legs.
+We pushed 6.5 miled to Paradise Valley Cafe to reward ourselves with breakfast. We all ordered a huge plate of chicken fried steak and eggs, and drained a few cups of coffee. Our plane was to hitchhike into Idyllwild, spent the day figuring out stuff, and camping. The following day was our first real, planned zero: we hoped to cook a "family" dinner, watch the Game of Thrones finale, and rest our legs.
 
 So we did just that! But before getting started, we stumbled on the Idyllwild's mayor's birthday celebration. Here we are wishing him well:
 
