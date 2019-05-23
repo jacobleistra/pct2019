@@ -26,11 +26,11 @@ Toucan, Trashalope, and I met up with Kaci at the last water before Cabazon. The
 
 ![](/assets/images/MVIMG_20190522_101321.jpg)
 
-We arrived at the underpass of I-10 near Cabazon shortly after 10 AM. We had crushed over 12 miles in 3 hours and change, with a few small breaks of course. We tried to hitchhike on a busy section of the freeway, but a nearby car waved us over and we went to see about a ride. The guy at the wheel let us know he would get generously drive us to Cabazon (a whole 5 miles away) for $6... each person. Noticing the Lyft sticker on his car, we quickly pulled up the app and got a.wuote for $8.93 (for all four of us) to In-N-Out. In the nicest way, we told him to get bent, waited for him to drive off, and hailed a (different) Lyft to Cabazon.
+We arrived at the underpass of I-10 near Cabazon shortly after 10 AM. We had crushed over 12 miles in 3 hours and change, with a few small breaks of course. We tried to hitchhike on a busy section of the freeway, but a nearby car waved us over and we went to see about a ride. The guy at the wheel let us know he would get generously drive us to Cabazon (a whole 5 miles away) for $6... each person. Noticing the Lyft sticker on his car, we quickly pulled up the app and got a quote for $8.93 (for all four of us) to In-N-Out. In the nicest way, we told him to get bent, waited for him to drive off, and hailed a (different) Lyft to Cabazon.
 
 ![](/assets/images/IMG_20190522_110242_1.jpg)
 
-After inhaling everything menu item we could (Animal Style, of course), we began making plans to Lyft over to Banning to resupply at Walmart. My water filter was acting up, and I was pretty sure I froze it a couple nights past, so I wanted to grab a new one before heading up to Big Bear Lake. (Our Lyft to Walmart was in a Tesla Model X, so that was cool. You could tell the driver was a little offput by driving four smelly hikers 10 miles down the freeway.)
+After inhaling every menu item we could (Animal Style, of course), we began making plans to Lyft over to Banning to resupply at Walmart. My water filter was acting up, and I was pretty sure I froze it a couple nights past, so I wanted to grab a new one before heading up to Big Bear Lake. (Our Lyft to Walmart was in a Tesla Model X, so that was cool. You could tell the driver was a little offput by driving four smelly hikers 10 miles down the freeway.)
 
 ![](/assets/images/IMG_20190522_122436.jpg)
 
