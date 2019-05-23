@@ -12,7 +12,7 @@ Mile 151.8 -> Mile 176.4
 
 Excuse the terrible title, but I just watched the series finale of Game of Thrones, and today's hike  inspired the title. (Spoiler: The last episode was hot garbage.)
 
-We left Idyllwild after a breakfast of coffee and 50% day old pastries. I think it took me about 60 seconds to eat two giant donuts with pink glaze and topped with Fruity Pebbles. We hitched back to Paradise Valley and hauled ass up the mountain with an inkling our campsite at 8300 ft. would be a good place to stop. Another spoiler: it wasn't. 
+We left Idyllwild after a breakfast of coffee and 50% off day old pastries. I think it took me about 60 seconds to eat two giant donuts with pink glaze and topped with Fruity Pebbles. We hitched back to Paradise Valley and hauled ass up the mountain with an inkling our campsite at 8300 ft. would be a good place to stop. Another spoiler: it wasn't. 
 
 But the nearly 25 mile hike up the mountain was pretty incredible. Easily the toughest day so far, especially if you include the night's "rest."
 
