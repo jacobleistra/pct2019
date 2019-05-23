@@ -12,7 +12,7 @@ Mile 197.2 -> Mile 209.5 -> Lyft to Cabazon and Banning
 
 I cowboy camped in a windy night with a 50% chance of rain. I would have preferred to pitch my tarp, but with 40+ mph winds, it was just impossible to get a shelter setup. I was able to get some sleep and wake up around 4:30 AM with a wet bivy sack, wet quilt, and sandy face. The wind wasn't kind, but it was what it was. 
 
-We got going before 6:00 AM and busted ass down the mountain. The views we're gorgeous, the promise of In-N-Out was motivating, and the price of a motel ($70 for four of us) was too good to pass up.
+We got going before 6:00 AM and busted ass down the mountain. The views were gorgeous, the promise of In-N-Out was motivating, and the price of a motel ($70 for four of us) was too good to pass up.
 
 ![](/assets/images/MVIMG_20190522_075834.jpg)
 
