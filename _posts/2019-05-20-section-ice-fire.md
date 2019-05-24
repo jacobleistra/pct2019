@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Days 11: A Section Of Ice And Fire"
+title: "Day 11: A Section Of Ice And Fire"
 date: "2019-05-20"
 description: "Description"
 image: /assets/images/IMG_20190520_181448.jpg
