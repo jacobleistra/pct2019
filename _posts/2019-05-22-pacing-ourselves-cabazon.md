@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Days 13: Pacing Ourselves Into Cabazon"
+title: "Day 13: Pacing Ourselves Into Cabazon"
 date: "2019-05-22"
 description: "Description"
 image: /assets/images/IMG_20190522_093615.jpg
