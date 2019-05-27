@@ -8,6 +8,8 @@ tags:
     - PCT
     - Life
 ---
+Mile 209.5 - Zero miles on trail
+
 The rain started last night and continued well past checkout time at the motel. I was antsy to get hiking, but as a group we decided to zero in Cabazon/Banning/Beaumont. Not the greatest place to take some time off, but here's why we did just that: Big Bear City/Lake, our next trail stop for resupply and rest, was fully booked through Monday for Memorial Day. Furthermore, we were able to find a better hotel with a hot tub and nicer accomodations (including a better breakfast).
 
 This was a smart decision, even if I didn't want to stay in a town, for one major reason. The Sierra Nevada section starting around mile 700 is still experiencing snowstorms and winter-y conditions. For the type of hiking I'm prepared to do, it doesn't make sense to rush into the Sierra. Taking as much time as possible right now means getting there when I'm comfortable entering the snowy world of the Sierra.
