@@ -8,6 +8,8 @@ tags:
     - PCT
     - Life
 ---
+Mile 209.5 -> Mile 232.1
+
 It was (finally) time to get back on trail. We took a Lyft back to the trailhead, dropped off some food and supplies we no longer needed in the hiker box, and got going. 
 
 The majority of the day was what I imagined the desert would be. This made sense, because we were starting out around 1300 ft., so we wouldn't be seeing any snow or ice like on the surrounding peaks. Instead we spent much of the day climbing up a dry and sunny incline surrounded by sage brush, cacti, and wind turbines.
