@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 20: "Silverwood Lake Oasis"
+title: "Day 20: Silverwood Lake Oasis"
 date: "2019-05-29"
 description: "Description"
 image: /assets/images/IMG_20190529_165139.jpg
