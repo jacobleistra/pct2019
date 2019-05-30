@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 19: "Bridges Over Deep Creek"
+title: "Day 19: Bridges Over Deep Creek"
 date: "2019-05-28"
 description: "Description"
 image: /assets/images/MVIMG_20190528_180104.jpg
