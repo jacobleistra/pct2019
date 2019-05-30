@@ -28,4 +28,4 @@ At the Cleghorn picnic area, we dried our gear, took a dip in the lake, and kick
 
 Our plan is to push 6 miles in Cajon Pass, gorge ourselves on fast food, and take a rest day at the motel there. We planned on getting into Wrightwood for a rest, but the lodging cost is almost double (for worse accomodations). So we shook up our plan to head into Cajon Pass early in the morning for a McDonald's breakfast. In real lifez that sounds pretty bad. But on trail that sounds divine.
 
-*Main Photo: The farthest view of Silverwood Lake of the day. May 30.
+*Main Photo: The farthest view of Silverwood Lake of the day. May 30.*
