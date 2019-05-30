@@ -8,7 +8,7 @@ tags:
     - PCT
     - Life
 ---
-Hitchhike Out of Big Bear Lake -> Mile 266.1 -> 285.6
+Hitchhike Out of Big Bear Lake -> Mile 266.1 -> Mile 285.6
 
 ![](/assets/images/IMG_20190527_063832.jpg)
 
