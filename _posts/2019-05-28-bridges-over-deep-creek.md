@@ -10,7 +10,7 @@ tags:
 ---
 Mile 285.6 -> Mile 314.6
 
-I cowboy camped last night in my bivy, And I expected a bit of condensation. What I didn't expect was for it to drop below freezing at night. I woke up with my bivy and quilt frozen together. I was hoping this wasn't a bad omen for how the day would go, and luckily it wasn't.
+I cowboy camped last night in my bivy, and I expected a bit of condensation. What I didn't expect was for it to drop below freezing at night. I woke up with my bivy and quilt frozen together. I was hoping this wasn't a bad omen for how the day would go, and luckily it wasn't.
 
 ![](/assets/images/IMG_20190528_060148.jpg)
 
