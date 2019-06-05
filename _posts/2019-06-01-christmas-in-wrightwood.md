@@ -8,7 +8,7 @@ tags:
     - PCT
     - Life
 ---
-Mile 364.3 -> Mile 369.3 -> Hitchhike into Wrightwood -> Hitchhike out of Wrightwood -> Mile 37
+Mile 364.3 -> Mile 369.3 -> Hitchhike into Wrightwood
 
 An easy 5 miles to the CA 2 freeway was our gateway into Wrightwood. Kacy (now Money Beets) asked a trail angel to give us a ride, and after a quick hop into a truck bed, we were off.
 
