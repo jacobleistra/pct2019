@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Days 28 and 29: Hiker Heaven"
+title: "Days 27 and 28: Hiker Heaven"
 date: "2019-06-06"
 description: "Description"
 image: /assets/images/MVIMG_20190605_130137.jpg
