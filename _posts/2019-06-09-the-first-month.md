@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Days 31: The First Month"
+title: "Day 31: The First Month"
 date: "2019-06-09"
 description: "Description"
 image: /assets/images/IMG_20190609_072049.jpg
