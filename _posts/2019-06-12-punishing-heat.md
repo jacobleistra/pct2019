@@ -10,7 +10,7 @@ tags:
 ---
 Mile 534.9 -> Mile 566.4 -> Ride into Tehachapi
 
-Woosh. Woosh. Woosh. If it wasn't obvious to me last night, the alarm clock of a giant wind turbine makde it clear that we slept in the middle of a wind farm. And I slept like a rock. But there was no time to sleep, since it was 5:30 AM and already 70 some degrees. 
+Woosh. Woosh. Woosh. If it wasn't obvious to me last night, the alarm clock of a giant wind turbine made it clear that we slept in the middle of a wind farm. And I slept like a rock. But there was no time to sleep, since it was 5:30 AM and already 70 some degrees. 
 
 As soon as I got walking the sun was hunting me with its beams. The best shade I experienced all day was in the first hour in the shadow of a wind turbine. As the day grew hotter I would have died for that shade again. Instead I just mostly died.
 
