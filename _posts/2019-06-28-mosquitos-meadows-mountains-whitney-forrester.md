@@ -22,7 +22,7 @@ We're treated to amazing views of a different type. Our first Sierra meadow gree
 
 ![](/assets/images/MVIMG_20190624_145142.jpg)
 
-![](/assets/images/IMG_20190624_155242.jpg
+![](/assets/images/IMG_20190624_155242.jpg)
 
 One really cool sight was the bridge crossing over the Kern River into Monache Meadow. Under the bridge are tens of swallow nests with birds effortlessly surfing the wind. It looked like they were catching bugs in the breeze across the river, and it was a fascinating experience. The river was pretty nice to relax at, as well.
 
