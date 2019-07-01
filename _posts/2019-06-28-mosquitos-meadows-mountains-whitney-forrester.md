@@ -54,7 +54,7 @@ Random thought: stumbling on a random meadow is absolutely breathtaking. Meadows
 
 ![](/assets/images/IMG_20190627_100956.jpg)
 
-Day 49: Mile 756.5 -> Mile 767.0
+**Day 49**: Mile 756.5 -> Mile 767.0
 
 Tomorrow is an exciting day. Climbing Mt. Whitney has been a dream of mine for a decade or so. Ever since I heard that the the continental U.S. high point was in California, it's been on my list of hikes to do. I can't believe I get to do it tomorrow, and I didn't have to get a lottery permit or anything crazy.
 
