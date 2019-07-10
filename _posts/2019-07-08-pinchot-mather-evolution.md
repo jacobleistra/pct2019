@@ -44,9 +44,9 @@ I had a ton of fun. It was great maneuvering rock again. Climbing is one of the 
 
 Until I got to the other side and slipped on the way down. I made a stupid mistake of resting on my right foot and extending my left foot to reach a lower rock. My left foot slipped and I went careening forward on my left shin and knee. My already torn wind pants were now super torn. I pulled up the left leg to see the damage as I cursed at the top of my lungs. Anyone who knows me will know I don't do well with blood and guts, and the sight before me about made me pass out. A 3-4" gash on my shin was white and lightly bleeding. It looked like bone. I instantly panicked and thought my hike was over. I would have to get off at the next pass and get medical help. If it was really bad, I might need to be evacuated off the mountain.
 
-I started to go into shock as Toucan came by to see what was up. He helped me get my things out of my way while I laid down and elevated my feet. I was full on panicking before Hot Take and another hiker came by. Hot Take was my savior as he provided bandages, cooling strips, and other first aid gear. The other hiker gave a look and told me with confidence it wasn't bone, it was the fatty strip above the muscle. This made sense, since the gash went across my shin bone, bit was uniform in color.
+I started to go into shock as Toucan came by to see what was up. He helped me get my things out of my way while I laid down and elevated my feet. I was full on panicking before Hot Take and another hiker came by. Hot Take was my savior as he provided bandages, cooling strips, and other first aid gear. The other hiker gave a look and told me with confidence it wasn't bone, it was the fatty strip above the muscle. This made sense, since the gash went across my shin bone, but was uniform in color.
 
-I bandages myseld up and came to. My hike wasn't over, I wasn't in much pain, and I had people around me that could help. It was a close call, but alas, just a flesh wound.
+I bandaged myself up and came to. My hike wasn't over, I wasn't in much pain, and I had people around me that could help. It was a close call, but alas, just a flesh wound.
 
 ![](/assets/images/IMG_20190705_154032.jpg)
 
