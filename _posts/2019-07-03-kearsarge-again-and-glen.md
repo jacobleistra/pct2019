@@ -28,9 +28,9 @@ We spent some time there before moving forward down the trail. We caught a coupl
 
 The rest of the day was grueling and tiring, but amazingly beautiful. I think the highlight of the day was walking around Rae Lake. We had been up since 4:00 AM and had slogged through miles of snow, and were ending the day on an incline about 4.5 miles away from Pinchot Pass. We were beat and fell asleep as soon as the noise of the busy camp site let us.
 
-![](/assets/imagesIMG_20190703_110702.jpg)
+![](/assets/images/IMG_20190703_110702.jpg)
 
-A couple of cool things from today: we crossed the 800 mile mark, and I got to go on my first suspension bridge. It was really cool, but the way it swayed with every step scared me more than k expected.
+A couple of cool things from today: we crossed the 800 mile mark, and I got to go on my first suspension bridge. It was really cool, but the way it swayed with every step scared me more than I expected.
 
 ![](/assets/images/IMG_20190703_160010.jpg)
 
