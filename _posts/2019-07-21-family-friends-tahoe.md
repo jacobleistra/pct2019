@@ -1,4 +1,4 @@
---
+---
 layout: post
 title: "Days 68 - 71: Family and Friends in Tahoe"
 date: "2019-07-21"
