@@ -28,7 +28,7 @@ It was a great day. Except for the mosquitoes. But it was still a great day.
 
 **Day 63: Mile 942.6 -> Mile 967.5**
 
-"You're the first customer if the season," the cashier said. I was waiting outside of the Tuolomne Meadows General Store for about 25 minutes until 8:00 AM hit and the doors were opened. I quickly got in, grabbed anything I wanted to eat today, and got back on the trail. I would have bought breakfast at the grill next door, but it wasn't opening until noon. Oh well, Pop Tarts would have to do. 
+"You're the first customer of the season," the cashier said. I was waiting outside of the Tuolomne Meadows General Store for about 25 minutes until 8:00 AM hit and the doors were opened. I quickly got in, grabbed anything I wanted to eat today, and got back on the trail. I would have bought breakfast at the grill next door, but it wasn't opening until noon. Oh well, Pop Tarts would have to do. 
 
 I had an ambitious day of doing Benson Pass, about 24 miles away from Tuolomne Meadows. It was a lot of ascent and descent, and almost entirely in mosquito territory. But if I wanted to get to Kennedy Meadows North by Sunday and then Lake Tahoe the following week, I needed to keep a steady 25 mile/day pace. I'm comfortable and happy to do it, but normally I get a start around 6:00 AM, not 9:00.
 
