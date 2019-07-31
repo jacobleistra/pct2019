@@ -20,7 +20,7 @@ We did an easy 6 miles into Red's Meadow for breakfast (which was very overprice
 
 The rest of the group booked Eastside Guesthouse in Bishop and were hitching there. I booked at the Davison Guesthouse in Mammoth Lakes. We said our goodbyes, probably for some time, as we were headed in different directions and would be in town for different amounts of time. I was not zeroing as I was eager to get on trail and start hauling ass now that the hard stuff was behind us.
 
-I'll definitely miss the group I was with, but it will also be nice to be alone. Before starting I expected to do most of the trail solo, so it was a pleasant surprise to find a good group to hike with. I felt pressured into zeroing a few times when is didn't want to, but I don't have any regrets. Now that I'm solo, I'll get to make up time and go at my own pace.
+I'll definitely miss the group I was with, but it will also be nice to be alone. Before starting I expected to do most of the trail solo, so it was a pleasant surprise to find a good group to hike with. I felt pressured into zeroing a few times when I didn't want to, but I don't have any regrets. Now that I'm solo, I'll get to make up time and go at my own pace.
 
 I spent the day in Many running errands, resupplying food, picking up packages, eating entire pints of Ben and Jerry's from Grocery Outlet (for $1.99!), cooking a frozen pizza, eating multiple breakfasts, etc. It was quite nice. I think Mammoth is a cool town and I want to come back soon, but I still love Bishop more. I'm a big fan of the free trolleys in town though.
 
