@@ -16,7 +16,7 @@ Then the flashes of light started. I had pulled my down quilt over my face and p
 
 Suddenly my entire field of vision flashed white. Only I had no vision, as my eyes were shut under my jacket and quilt. "1 Missi--" I counted before I was interrupted. It sounded like Thor himself was summoning the elements above me. The thunder roared so loud I couldn't hear the rain bullets firing overhead. Holy shit. I was surprised I didn't hear a tree splintering like spaghetti noodles spilling out of an upended box.
 
-Thwn the storm moved, the rain lightened in intensity, and I fell asleep. Until the next storm cloud came an hour or later and repeated the process. It left as well, only to be followed by one or two more storm clouds.
+Then the storm moved, the rain lightened in intensity, and I fell asleep. Until the next storm cloud came an hour or later and repeated the process. It left as well, only to be followed by one or two more storm clouds.
 
 I'm amazed I slept at all, but when my alarm went off I realized I was indeed sleeping. The sun was just starting to brighten the sky but the dripping of rain surrounded me on all sides. I patted myself and my gear to find everything wet. I opened my fanny pack. My phone and battery pack, while wet, still turned on. But everything else was soaked through: my ditty bag with first aid and permits, my poop kit and toilet paper, my pack. Everything was wet. I had a little bit of reception and checked the weather for today. More intermittent thunderstorms in the afternoon and evening, with no promise of sunny skies to dry all this stuff out.
 
