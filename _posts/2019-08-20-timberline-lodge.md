@@ -8,7 +8,7 @@ tags:
     - PCT
     - Life
 ---
-Mile 2080.8 -> Mile 2097.4 -> Side trail I'm and out of Timberline Lodge -> Mile 2109.5
+Mile 2080.8 -> Mile 2097.4 -> Side trail in and out of Timberline Lodge -> Mile 2109.5
 
 All things considered, I slept great last night. My hips are sore, my left shin is killing me, and it was a little cold. But I camped in peace, alone, without mosquitoes. And it was great.
 
