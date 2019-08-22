@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Day 103: Cascade Locks (And More Food)"
-date: "2019-08-20"
+date: "2019-08-21"
 description: "Description"
 image: /assets/images/IMG_20190821_074616.jpg
 tags:
