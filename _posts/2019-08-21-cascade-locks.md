@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Day 102: Cascade Locks (And More Food)"
+title: "Day 103: Cascade Locks (And More Food)"
 date: "2019-08-20"
 description: "Description"
 image: /assets/images/IMG_20190821_074616.jpg
