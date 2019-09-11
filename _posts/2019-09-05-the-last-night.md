@@ -10,7 +10,7 @@ tags:
 ---
 Mile 2609.9 -> Mile 2641.8
 
-I was awake well before my first alarm of 5:30 AM. The sky was dark blue and the trees above blocked most of my blue. Nevertheless I out in my glasses and things became clearer. I counted nearly 10 stars speckled in between the tree branches. I lay awake, almost sleeping, thinking about the day to come. It's my last full day on the Pacific Crest Trail. Tomorrow by midday I will be in Canada.
+I was awake well before my first alarm of 5:30 AM. The sky was dark blue and the trees above blocked most of my view. Nevertheless I out in my glasses and things became clearer. I counted nearly 10 stars speckled in between the tree branches. I lay awake, almost sleeping, thinking about the day to come. It's my last full day on the Pacific Crest Trail. Tomorrow by midday I will be in Canada.
 
 With every few blinks of my heavy eyelids the dark blue fades to grey blue, and then to light blue. When my last alarm rings it is 6 AM and time to get moving. It is light enough to see my surroundings, but not light enough to hide the one last star directly above me.
 
