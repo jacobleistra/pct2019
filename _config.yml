@@ -14,8 +14,8 @@ default_img: /assets/images/about-1.jpg
 social:
   # - name: twitter
   #   url: https://twitter.com/
-  - name: instagram
-    url: https://www.instagram.com/jacobleistra/
+  # - name: instagram
+  #   url: https://www.instagram.com/jacobleistra/
   # - name: linkedin
   #   url: https://www.linkedin.com/in/
   - name: github
@@ -36,7 +36,7 @@ social:
 author:
   - name: Jacob Leistra
     bio: 
-    url: http://jacobleistra.com
+    url: http://pct2019.jacobleistra.com
 
 # Pagination settings
 pagination:
